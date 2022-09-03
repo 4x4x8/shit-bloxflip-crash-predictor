@@ -2,7 +2,9 @@ Used 5th grade math:
 get 4 crash number
 
 the numbers at sum is crashes
+
 (1+2+3+4) / 4 = prediction lmao
+
 random ruins everything...
 
 heres images
